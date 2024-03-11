@@ -1,3 +1,3 @@
 # grooming.ppt
 
-https://docs.google.com/presentation/d/1EB9tjzedrSJDu3nzA7Nzn975ZZqbBjuH/edit?usp=drive_link&ouid=115104910961776781455&rtpof=true&sd=true
+https://drive.google.com/drive/folders/1S-5hVXQTLq_amRUcV_jm0pTZ3qqoqH33?usp=sharing
